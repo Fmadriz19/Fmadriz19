@@ -1,5 +1,5 @@
-# 🚀 About Me:
-Hello! 👋 I'm a 23 year old programmer from Venezuela with a great enthusiasm for continuous learning and tackling challenging projects that create impact.<br><br>🔹 Always Learning: I am constantly improving, exploring new technologies, and enhancing my skills every day.<br>🔹 Teamwork: I enjoy collaborating on projects where we can share ideas and develop the most professional and effective solutions.<br>🔹 Problem-Solving: I like analyzing all possible solutions for each challenge, researching documentation, and exploring different approaches to determine the best option.<br><br>If you have an exciting project or an opportunity where I can contribute, I'd be happy to collaborate with you! 🚀
+# 🚀 Helloooo! 👋:
+I'm a 23 year old programmer from Venezuela with a great enthusiasm for continuous learning and tackling challenging projects that create impact.<br><br>🔹 Always Learning: I am constantly improving, exploring new technologies, and enhancing my skills every day.<br>🔹 Teamwork: I enjoy collaborating on projects where we can share ideas and develop the most professional and effective solutions.<br>🔹 Problem-Solving: I like analyzing all possible solutions for each challenge, researching documentation, and exploring different approaches to determine the best option.<br><br>If you have an exciting project or an opportunity where I can contribute, I'd be happy to collaborate with you! 🚀
 
 
 ## 🌐 Socials:
